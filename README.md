@@ -8,12 +8,9 @@
  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤㅤㅤ[**strawpage**](https://saintkerosene.straw.page)
 
 <img src="https://www.image2url.com/r2/default/images/1780852746647-9d9f509e-6e47-49f6-b2a3-c09de99028a8.jpg" alt="image" />
-
-<img src="https://www.image2url.com/r2/default/images/1780853228846-6f2b4f0f-76c4-425f-85c7-a3c14729b03a.png" alt="image" />
 <img src="https://www.image2url.com/r2/default/gifs/1780889100076-af94c10f-2e9e-43ef-8e72-b2482ac755c0.gif" alt=image" />
+<img src="https://www.image2url.com/r2/default/images/1780853228846-6f2b4f0f-76c4-425f-85c7-a3c14729b03a.png" alt="image" />
 
- ㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤテテㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤ
- ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤ<img src="https://www.image2url.com/r2/default/images/1780889559723-e34fd17e-ad3e-4a9c-8bfc-6eeaeb15b5be.jpg" alt="image" />
 
- <img src="https://www.image2url.com/r2/default/images/1780853228846-6f2b4f0f-76c4-425f-85c7-a3c14729b03a.png" alt="image" />ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤ
+ ㅤㅤㅤㅤㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤ
+ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤ
