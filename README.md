@@ -5,7 +5,4 @@
 [**atabook**](https://cllairo.atabook.org/) ㅤ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤㅤㅤ[**strawpage**](https://saintkerosene.straw.page)
 
 <img src="https://www.image2url.com/r2/default/images/1780853228846-6f2b4f0f-76c4-425f-85c7-a3c14729b03a.png" alt="image" />
-
-
- ㅤㅤㅤㅤㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤ
- ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤ
+<img src="https://www.image2url.com/r2/default/images/1783107130389-3a1c8381-9eca-435c-a953-88e3d6a2efb4.jpg" alt="image" />
