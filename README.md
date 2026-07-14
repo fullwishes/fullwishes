@@ -1,6 +1,6 @@
 <p align="center"><img  src="https://komarev.com/ghpvc/?username=twins&label=(⁠눈⁠‸⁠눈⁠)&color=111f3d">
 
-<img src="https://www.image2url.com/r2/default/images/1783106855185-04ba79c2-5947-42f1-8811-2fd4fe5c1955.jpg" alt="image" />
+<img src="https://www.image2url.com/r2/default/images/1784048793172-d65d727d-2955-4770-a806-0c44b2e568d8.gif" alt="image" />
 
 [**atabook**](https://cllairo.atabook.org/) ㅤ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤㅤㅤ[**strawpage**](https://saintkerosene.straw.page)
 
