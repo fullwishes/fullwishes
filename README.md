@@ -3,7 +3,7 @@
  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤ<img  src="https://komarev.com/ghpvc/?username=twins&label=(⁠눈⁠‸⁠눈⁠)&color=111f3d">
 
 
-<img src="https://img.sanishtech.com/u/22350c9df9fa10659957b14d3878d4dd.jpg" alt="1000074134" width="735">
+<img src="https://img.sanishtech.com/u/31754230f4ca1f6a1f1215d86e692bc6.jpg" alt="1000079355" width="500">
 
 
 
