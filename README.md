@@ -8,7 +8,7 @@
 
 
  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ⠀ ⠀ㅤㅤㅤ
-ㅤ<sub>[**𝗔𝗧𝗔𝗕𝗢𝗢𝗞**](https://cllairo.atabook.org)<div align="center">
+ㅤ<sub>[**新book**](https://cllairo.atabook.org)<div align="center">
 
  
  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ⠀ ⠀ㅤㅤㅤㅤ ㅤㅤ
